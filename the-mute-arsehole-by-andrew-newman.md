@@ -1,4 +1,5 @@
 # The mute arsehole – Dum Dum by Ben Terakes
+## By Andrew Newman
 
 *I’m panting. Then wheezing. My mouth is open and my throat is clogged. Stuck. I cough to clear it. A post-coital cough followed by a post-coital snore. Gargling and burbling. My mouth is still open. I can’t breathe through my nose. I breathe through my mouth*.
 
